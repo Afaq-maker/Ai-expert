@@ -1,6 +1,6 @@
 # Afaq Ali
 
-![Profile Image](https://via.placeholder.com/150)
+![Profile Image](https://images.app.goo.gl/G7txoVrj53DsfdaR8))
 
 ## About Me
 
